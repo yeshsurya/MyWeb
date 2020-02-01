@@ -1,6 +1,6 @@
 ## Other Tech Blog
 
-Visit [ yeshsurya.blogspot.com ] 
+Visit [ yeshsurya.blogspot.com ] (https://www.yeshsurya.blogspot.com)
 
 This was the first place where thoughts and work were shared.
 
